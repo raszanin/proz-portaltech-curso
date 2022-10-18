@@ -1,0 +1,12 @@
+- Coloque os ingredientes em cima de uma bancada
+- Pegue uma vasilha e coloque em cima da bancada
+- Quebre os ovos e coloque dentro da vasilha
+- Adicione o leite a vasilha
+- Adicione a farinha
+- Adicione o açucar
+- Adicione a manteiga
+- Adicione o achocolatado em pó
+- Misture os ingredientes até a massa ficar uniforme
+- Unte uma forma
+- Coloque a massa na forma untada
+- Leve ao forno para assar
